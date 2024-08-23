@@ -1,2 +1,3 @@
-![IMG_2209](https://github.com/user-attachments/assets/8ed6addb-9ed9-4804-b663-b1be39c3a9ba) ![IMG_2213](https://github.com/user-attachments/assets/dda574f0-786b-457a-b90d-f0bc54213501)
+  𝙎𝙀𝙀 𝙃𝙊𝙒 𝙄 𝘾𝙄𝙍𝘾𝙇𝙀 ...
 
+![Untitled60_20240822201457](https://github.com/user-attachments/assets/139b3c69-cb8d-4c83-997d-601ab72ccbcd)
